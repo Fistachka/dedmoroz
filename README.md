@@ -1,24 +1,22 @@
 <span id="ru"><a href='#ru'>🇷🇺</a> &nbsp;&nbsp;&nbsp;<a href='#en'>🇺🇸</a> &nbsp;&nbsp;&nbsp;</span><br><br>
 
-![8](https://github.com/user-attachments/assets/10529929-9c1a-4cba-94fd-7faf90ded3c7)
+![з2](https://github.com/user-attachments/assets/817c12e3-d98c-4639-ac03-faf2f0e2f2ac)
 
 <iframe width="315" height="560" src="https://www.youtube.com/embed/ytEZ4Wlln8M" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 
-А я не хочу, не хочу о престоле,
-А я о любви, о любви хочу.
-На волю, на волю, хочу я на волю,
-Я птицею ввысь улечу!<br><br>
+Вот оно какое, наше лето,
+Лето яркой зеленью одето,
+Лето жарким солнышком согрето,
+Дышит лето ветерком.<br><br>
 
 <span id="en"><a href='#ru'>🇷🇺</a> &nbsp;&nbsp;&nbsp;<a href='#en'>🇺🇸</a> &nbsp;&nbsp;&nbsp;</span><br><br>
 
-![8](https://github.com/user-attachments/assets/10529929-9c1a-4cba-94fd-7faf90ded3c7)
+![з2](https://github.com/user-attachments/assets/817c12e3-d98c-4639-ac03-faf2f0e2f2ac)
 
 <iframe width="315" height="560" src="https://www.youtube.com/embed/jILc9hvZ4tM" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 
-A ya ne hochu, ne hochu o prestole,
-A ya o lyubvi, o lyubvi hochu.
-Na volyu, na volyu, hochu ya na volyu,
-YA pticeyu vvys' ulechu!<br><br>
+Vot ono kakoe, nashe leto,
+Leto yarkoj zelen'yu odeto,
+Leto zharkim solnyshkom sogreto,
+Dyshit leto veterkom.<br><br>
 
-![з1](https://github.com/user-attachments/assets/ee0c6d41-6791-4c5a-ac8c-9e2d346ec2bf)
-![з2](https://github.com/user-attachments/assets/817c12e3-d98c-4639-ac03-faf2f0e2f2ac)
