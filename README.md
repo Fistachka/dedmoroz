@@ -20,3 +20,5 @@ A ya o lyubvi, o lyubvi hochu.
 Na volyu, na volyu, hochu ya na volyu,
 YA pticeyu vvys' ulechu!<br><br>
 
+![з1](https://github.com/user-attachments/assets/ee0c6d41-6791-4c5a-ac8c-9e2d346ec2bf)
+![з2](https://github.com/user-attachments/assets/817c12e3-d98c-4639-ac03-faf2f0e2f2ac)
